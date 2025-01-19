@@ -4,7 +4,7 @@
 - 👀 I’m interested in sleeping
 - 🌱 I’m currently learning how to get better sleep with less time
 - 💞️ I’m looking to collaborate on sleep-project
-- 📫 How to reach me QQ2275187434 or 2275187434@qq.com
+- 📫 How to reach me **2275187434@qq.com** or **Discord(load34uwu)**
 - 😄 Pronouns: it
 - ⚡ Fun fact: I am a stupid chinese student
 
